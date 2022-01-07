@@ -1,3 +1,3 @@
 # Vijay-Project
 
-This is Vijay Nandan in Siddharth nagar
+My Name is Vijay Nandan
